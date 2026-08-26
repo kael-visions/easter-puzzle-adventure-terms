@@ -1,2 +1,2 @@
-# easter-puzzle-adventure-terms
-Official Terms &amp; Conditions for the Easter Puzzle Adventure mobile app.
+# Sliding Puzzles: Easter - Terms
+Official Terms & Conditions for the Sliding Puzzles: Easter mobile app.
